@@ -1,2 +1,6 @@
-# Root-Huawei-Y9-Prime-2019-With-Full-Tutorial-2020
-Root Y9 Prime 2019 With Tutorial Full Method
+#Click To Download Below Root Huawei Y9 Prime 2019 Full Method
+
+
+
+
+[![Loading...](https://raw.githubusercontent.com/ArifRawf/adbanner/master/ad.png)](https://wap4dollar.com/ad/serve.php?id=yf7bgohf7v)
